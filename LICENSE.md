@@ -1,4 +1,4 @@
-# 
+# quantitative Polymarket Strategy | automated-trade-execution + risk-management offers the most advanced Polymarket strategy, with automated-trade-execution and risk-management.
 
 
 
